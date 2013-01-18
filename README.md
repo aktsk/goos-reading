@@ -41,5 +41,5 @@
 3. プルリクエストお願いします
 
 ### 参加方法
-[Zusaarより](http://www.zusaar.com/event/496003)
+[Zusaarより参加登録をお願いします](http://www.zusaar.com/event/496003)
 
